@@ -4,8 +4,8 @@
 
 Disclaimer: NoGeese does not actually do anything to prevent goose infiltration.
 
+**Don't let this happen to you.**
 ![6931D336-6DAF-4F83-A899-93EA681F11CD_1_105_c](https://github.com/user-attachments/assets/eafc029f-2b98-485a-8348-7cbb418b4272)
-Don't let this happen to you.
 
 ---
 
